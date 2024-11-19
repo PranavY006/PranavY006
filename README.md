@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @PranavY006 a student to build something cool😎
-- 💞️ I’m looking to collaborate on nothing for now beacause i'm not worthy yet.
+- 👋 Hi, I’m @PranavY006 a student to build something cool😎 & Impactful✨
+- Can check out my site: pranav-yo.com
 - 📫 How to reach me (just mail me at pranav.yamagekar@gmail.com)
 
 <!---
